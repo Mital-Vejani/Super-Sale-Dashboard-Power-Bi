@@ -21,7 +21,7 @@ Peaks in November and December
 
 Peaks in October and December
 
-📈 𝐏𝐞𝐫𝐟𝐨𝐫𝐦𝐚𝐧𝐜𝐞 𝐎𝐯𝐞𝐫 𝐓𝐰𝐨 𝐘𝐞𝐚𝐫𝐬:
+𝐏𝐞𝐫𝐟𝐨𝐫𝐦𝐚𝐧𝐜𝐞 𝐎𝐯𝐞𝐫 𝐓𝐰𝐨 𝐘𝐞𝐚𝐫𝐬:
 
 Orders: 22K+
 
